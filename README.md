@@ -1,6 +1,6 @@
 👀 热淘福利导航最新网址：
 
-[https://xxmdh.xyz]
+[https://retaodh.icu]
 
 地址发布页 为防止迷路，请收藏好网址！
 
